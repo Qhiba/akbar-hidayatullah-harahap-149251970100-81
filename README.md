@@ -1,2 +1,2 @@
-ID Registrasi : 149251970100-81
-Nama  : Akbar Hidayatullah Harahap
+ID Registrasi : 149251970100-81  
+Nama  : Akbar Hidayatullah Harahap  
